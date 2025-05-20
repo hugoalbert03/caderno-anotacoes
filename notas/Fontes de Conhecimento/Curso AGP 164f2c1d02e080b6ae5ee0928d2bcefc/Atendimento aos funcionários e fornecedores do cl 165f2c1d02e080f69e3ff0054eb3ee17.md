@@ -1,0 +1,6 @@
+# Atendimento aos funcionários e fornecedores do clube
+
+- O relacionamento do porteiro com os funcionários do clube deve ser agradável e cordial, porém deve-se habituar os funcionários a apresentarem o crachá ou deixá-lo em lugar visível para identificação. Conhecer e chamar os funcionários pelo nome demostra respeito pelos mesmos. Quando houver a necessidade de parar um funcionário para passar algum recado ou por outro motivo, use um tom agradável ou seja delicado, para não constranger a pessoa perante seus colegas de trabalho.
+- Quando um fucionário chegar fora do seu horário normal de trabalho habitual, ou do seu turno de trabalho, é necessário checar o motivo, para no caso de alguém perguntar o porteiro saberá responder.
+- Quanto aos fornecedores do clube, eles podem ser sócios ou não, a grande maioria não são. Neste caso, os fornecedores ou entregadores precisam apresentar a cédula de identidade para preenchimento de ficha e estacionar o veículo no local correto para entrega de fornecedores.
+- Muitos acham que o trabalho de porteiro é um serviço muito parado, porém, a realidade é outra. Começam a trabalhar na portaria imaginando ser fácil, mas logo começam a perceber que existem dificuldades e muitas responsabilidades.
